@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shejoe1
 - 👀 I’m interested in ... creating
-- 🌱 I’m currently learning ... my self
+- 🌱 I’m currently learning ... myself
 - 💞️ I’m looking to collaborate on ... everything
 - 📫 How to reach me ... mail
 - 😄 Pronouns: ... mad scientist
